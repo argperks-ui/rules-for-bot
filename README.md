@@ -113,4 +113,4 @@ This Privacy Policy may be updated at any time. Continued use of SecureBot means
 7. Contact
 
 For privacy-related concerns, contact:
-[your email here]
+[argperks@gmail.com]
